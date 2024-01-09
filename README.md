@@ -2,4 +2,4 @@
 
 
 
-![data](https://hizliresim.com/muihpqg görsel)
+![data](https://hizliresim.com/muihpqg)
