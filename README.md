@@ -2,4 +2,4 @@
 
 
 
-<img src="https://r.resimlink.com/lLWHeNc.webp" alt="alt text" width="320" height="320">
+<img src="[url=https://hizliresim.com/muihpqg][img]https://i.hizliresim.com/muihpqg.png[/img][/url]" alt="alt text" width="320" height="320">
