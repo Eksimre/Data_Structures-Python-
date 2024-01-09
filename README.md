@@ -2,4 +2,4 @@
 
 
 
-![calculator picture](https://r.resimlink.com/lLWHeNc.webp)
+<img src="https://r.resimlink.com/lLWHeNc.webp" alt="alt text" width="320" height="320">
