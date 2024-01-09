@@ -2,4 +2,4 @@
 
 
 
-![data](https://hizliresim.com/muihpqg)
+![data]([url=https://hizliresim.com/muihpqg][img]https://i.hizliresim.com/muihpqg.png[/img][/url])
