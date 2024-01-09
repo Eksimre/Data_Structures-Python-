@@ -2,4 +2,4 @@
 
 
 
-![data]([url=https://hizliresim.com/muihpqg][img]https://i.hizliresim.com/muihpqg.png[/img][/url])
+![data](https://r.resimlink.com/wlv_q1Kg.png)
